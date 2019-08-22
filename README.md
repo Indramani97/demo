@@ -1,1 +1,0 @@
-nana gandu hai
